@@ -1,1 +1,1 @@
-- 👋 Zack, CSAP | RWU '23 
+- 👋 Zack, CSAE | B.S., Cybersecurity & Networking 
